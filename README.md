@@ -14,7 +14,7 @@ Mukesh Patel School of Technology Management and Engineering, Shirpur
 SVKM’s NMIMS Deemed-to-be University  
 📊 CGPA: 3.34 / 4.0 (Pursuing)
 
-**HSC – 70%**  
+**HSC – 68.5%**  
 Gokuldas Public School, Khargone (May 2021)
 
 **SSC – 72%**  
