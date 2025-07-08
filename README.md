@@ -12,7 +12,7 @@
 **B.Tech in Information Technology**  
 Mukesh Patel School of Technology Management and Engineering, Shirpur  
 SVKM’s NMIMS Deemed-to-be University  
-📊 CGPA: 3.34 / 4.0 (Pursuing)
+📊 CGPA: 3.41 / 4.0 (Pursuing)
 
 **HSC – 68.5%**  
 Gokuldas Public School, Khargone (May 2021)
